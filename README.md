@@ -12,3 +12,25 @@ The analysis goes beyond cricket statistics, examining:
     Potential health & social concerns tied to ad content
 
 Using unstructured data sourced through tools like Perplexity, the study provides a balanced view for informed public discourse.
+
+![image-name](https://github.com/Vallabesh/IPL-2025-Economic-Growth-vs-Social-Impact-A-Balanced-Analysis/blob/2e167137aab3968a2c0487002cc4a7a0e2b9d5e4/Slide1.JPG)
+
+![image-name](https://github.com/Vallabesh/IPL-2025-Economic-Growth-vs-Social-Impact-A-Balanced-Analysis/blob/2e167137aab3968a2c0487002cc4a7a0e2b9d5e4/Slide2.JPG)
+
+![image-name](https://github.com/Vallabesh/IPL-2025-Economic-Growth-vs-Social-Impact-A-Balanced-Analysis/blob/2e167137aab3968a2c0487002cc4a7a0e2b9d5e4/Slide3.JPG)
+
+![image-name](https://github.com/Vallabesh/IPL-2025-Economic-Growth-vs-Social-Impact-A-Balanced-Analysis/blob/2e167137aab3968a2c0487002cc4a7a0e2b9d5e4/Slide4.JPG)
+
+![image-name](https://github.com/Vallabesh/IPL-2025-Economic-Growth-vs-Social-Impact-A-Balanced-Analysis/blob/2e167137aab3968a2c0487002cc4a7a0e2b9d5e4/Slide5.JPG)
+
+![image-name](https://github.com/Vallabesh/IPL-2025-Economic-Growth-vs-Social-Impact-A-Balanced-Analysis/blob/2e167137aab3968a2c0487002cc4a7a0e2b9d5e4/Slide6.JPG)
+
+![image-name](https://github.com/Vallabesh/IPL-2025-Economic-Growth-vs-Social-Impact-A-Balanced-Analysis/blob/2e167137aab3968a2c0487002cc4a7a0e2b9d5e4/Slide7.JPG)
+
+![image-name](https://github.com/Vallabesh/IPL-2025-Economic-Growth-vs-Social-Impact-A-Balanced-Analysis/blob/2e167137aab3968a2c0487002cc4a7a0e2b9d5e4/Slide8.JPG)
+
+![image-name](https://github.com/Vallabesh/IPL-2025-Economic-Growth-vs-Social-Impact-A-Balanced-Analysis/blob/2e167137aab3968a2c0487002cc4a7a0e2b9d5e4/Slide9.JPG)
+
+![image-name](https://github.com/Vallabesh/IPL-2025-Economic-Growth-vs-Social-Impact-A-Balanced-Analysis/blob/2e167137aab3968a2c0487002cc4a7a0e2b9d5e4/Slide10.JPG)
+
+![image-name](https://github.com/Vallabesh/IPL-2025-Economic-Growth-vs-Social-Impact-A-Balanced-Analysis/blob/2e167137aab3968a2c0487002cc4a7a0e2b9d5e4/Slide11.JPG)
