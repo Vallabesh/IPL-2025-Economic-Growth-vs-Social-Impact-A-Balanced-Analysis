@@ -1,0 +1,2 @@
+# IPL-2025-Economic-Growth-vs-Social-Impact-A-Balanced-Analysis
+"Business Basics" is a business blogging company that has established a strong following in the business content space. Considering the negative sentiment from viewers on the fact that more than 50% of the IPL advertisements are occupied by fantasy apps and pan masala ads, they want to release an edition focusing on the dual impact of IPL 2025.
